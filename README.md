@@ -1,2 +1,1 @@
 # TechingPinoyLanzMalto
-# TechingPinoyLanzMalto
